@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Hamed1zare
 - 👀 I’m interested in Teaching
-- 🌱 I’m currently learning Entrepreneurship, Digital Marketing Management
+- 🌱 I’m learning & an Entrepreneurship, Digital Marketing Manager
 - 💞️ I’m looking to collaborate on Business boom
-- 📫 How to reach me : On all social networks Hamed1Zare OR site Dena.Marketing
+- 📫 Reach Me : all Social Networks: Hamed1Zare
 
 
 <!---
